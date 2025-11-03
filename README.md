@@ -14,6 +14,3 @@ I'm currently doing some funny things :)
 - 🇨🇳 Chinese: Native
 - 🇺🇸 English: B2
 - 🇫🇷 French: A2
-
-## Profile Views:
-![](https://count.getloli.com/get/@AndyOctopus.github.readme)
