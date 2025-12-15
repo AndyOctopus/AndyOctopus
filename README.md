@@ -2,6 +2,8 @@
 
 Hey, I'm AndyOctopus! Maybe Octopus? I don't know...
 
+If you see my status is Loving Octopus, how many "s" after octopus is how many octopus I currently have!
+
 I'm currently doing some funny things :)
 
 - 💻 I’m currently working on my Minecraft Server (mc.andyoctopus.com)
