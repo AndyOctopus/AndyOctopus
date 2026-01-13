@@ -16,4 +16,3 @@ I'm currently doing some funny things :)
 - 🇨🇳 Chinese: Native
 - 🇺🇸 English: B2
 - 🇫🇷 French: A2
-- 
