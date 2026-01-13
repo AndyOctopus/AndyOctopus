@@ -16,5 +16,4 @@ I'm currently doing some funny things :)
 - 🇨🇳 Chinese: Native
 - 🇺🇸 English: B2
 - 🇫🇷 French: A2
-
-**2026 Happy New Year!**
+- 
